@@ -1,2 +1,2 @@
 # cartoon-hero
-rich Anderson learning
+rich Armstron on Skillshare.com learning
